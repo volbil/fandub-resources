@@ -1,0 +1,1 @@
+Працював з [[FanVoxUA]] (https://t.me/fanvoxua_re/2461), перейшов до [[Clan Kaizoku]] (https://t.me/clan_kaizoku/4769)
